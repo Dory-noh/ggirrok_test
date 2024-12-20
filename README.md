@@ -1,1 +1,1 @@
-If you have an Android smartphone, you can download and start playing right away. This is a testing phase, so errors may exist.
+갈매기 게임^_^입니다. 21일 동안 둥지를 지켜보아요(안드로이드만 가능)
